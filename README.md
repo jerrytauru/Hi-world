@@ -1,2 +1,2 @@
 # Hi-world
-FUCK YOU GUCKING JERRY DUMBASS!!!!
+¯\_(ツ)_/¯
